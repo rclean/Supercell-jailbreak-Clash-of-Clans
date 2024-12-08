@@ -2,4 +2,6 @@
 
 thanks for the writer of https://github.com/risporce/Supercell-jailbreak , uploading ipa for more than 1 years . But he can't upload new ipa now. Now Clash of Clans updated new TH17, I found a new ipa file can be used on jailbreak devices.
 
-Clash of Clans ipa download link: https://drive.usercontent.google.com/download?id=1oYw7tzJECfiXUHUw-fRPb9VWTMsBZ3Se
+Clash of Clans 16.654.13 ipa download link: https://drive.google.com/file/d/1jqWncKiZ3K8EfL5JMtkmZqG4HVzZ9erK/view?pli=1
+
+Clash of Clans 16.654.6 ipa download link: https://drive.usercontent.google.com/download?id=1oYw7tzJECfiXUHUw-fRPb9VWTMsBZ3Se
